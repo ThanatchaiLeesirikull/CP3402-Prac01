@@ -1,3 +1,0 @@
-# lEARNING JOURNAL WEEK 1
-
-## esfesf
