@@ -1,3 +1,3 @@
-# CP3402-Prac01
+# lEARNING JOURNAL WEEK 1
 
-FESF
+## esfesf
